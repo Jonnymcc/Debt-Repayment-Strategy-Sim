@@ -29,4 +29,4 @@ believing that paying off debt is partly a mind game.
 
 
 Spoilers: Paying the loan with the highest APR will save more money on interest payed (duh) and also
-pays off the total debt in less time (provided payments are consistent).
+pays off the total debt in less time (provided payments are consistent). Or it depends...
